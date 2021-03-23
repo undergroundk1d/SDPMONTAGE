@@ -1,8 +1,8 @@
-# SDPMONTAGE
-# The young underdogs who´s goal is to take over.
-We are bulding the future of Secureity doors, fire doors, gas doors and a lot of else!
-It would be awesome to bring people in to the projects and expand this pro-mounting firm with you.
-We are now at the start, got corperations with the largest door seller in SWE, Second largest, and even third largest.
-The companyy´s goal is to grow in a speed that builds trust and safty for your dependens at anytime.
-We are working hard to bring in some big investors to help ous reach out the name. 
-That progress is moving in rapid speed and everyting is checkt and done the right way.
+# SDPMONTAGE, BE AT HOME, always our pleasure.
+# Mounting Steel Doors In The Matrix Recolution, wELCOME TO JOIN!
+We are bulding the future of Secureity doors, fire doors, gas doors, garage doors, and striking to explore the market even more im a fast moving cycle thru the common years.
+It would be awesome to bring people into the projects we are launching, So they can get thier intrest on what we are doing and planning more specifically for the infrastructure and ecosystem, Private sector included. We are looking forward to expand this pro-mounting firm with you.
+We are now at the start, got corperations with the number one largest door manufacturer in SWE, Second largest, and even third largest!
+The companyy´s goal is to grow in a speed that builds robust trust for you and your closest famibly members, so you can feel safe at anytimee on the 24h timeframe.
+We are working day and night, very hard to bring in some big investors to help ous reach out and grab the possibilities that´s floating in the market right now.
+So, Be Our Guest On This Journy And Let Us Know If There Is Something you got on your mind. Thanks! //guyzonSDP.
