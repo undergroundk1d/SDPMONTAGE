@@ -1,5 +1,5 @@
 # SDPMONTAGE
-# The Youngest Mounting Boyz At The Market.
+# The young underdogs who´s goal is to take over.
 We are bulding the future of Secureity doors, fire doors, gas doors and a lot of else!
 It would be awesome to bring people in to the projects and expand this pro-mounting firm with you.
 We are now at the start, got corperations with the largest door seller in SWE, Second largest, and even third largest.
