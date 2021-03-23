@@ -1,4 +1,4 @@
-# SDPMONTAGE - FEEL AS HOME WE GOT YOUR BACK. Always our pleasure!
+# SDPMONTAGE - FEEL AS HOME WE GOT YOUR BACK. Always.
 # Mounting Steel Doors In The Matrix Revolution, WELCOME TO JOIN!
 We are bulding the future of Secureity doors, fire doors, gas doors, garage doors, and striking to explore the market even more in a fast moving cycle thru the common years.
 It would be gold and green woods to bring more people into the projects we are launching, So they can get thier intrest on what we are doing and planning more specifically for the infrastructure/ecosystem/population and ofcourse the Private sector. We are looking forward to expand this pro-mounting company with you and your help!
