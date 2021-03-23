@@ -7,7 +7,7 @@ The companyy´s goal is to grow in a speed that builds robust trust for you and 
 We are working day and night very hard to bring in some big investors to help ous reach out and grab the possibilities that´s floating in the market right now.
 So..! Be our guest on this journey and let us know if there is something you got on your mind. Big Thanks!
 
-MORE UPDATES COMING SHORTLY!STAY TUNED!
+MORE UPDATES ARE COMING SHORTLY. STAY TUNED!
 
 HELP US GROW - DONATE BTC AT: 1Fb3knFvbDSuGdypKJBsJEuiHD3MWMYhfY
 
