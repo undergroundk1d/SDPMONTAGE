@@ -8,5 +8,9 @@ We are working day and night, very hard to bring in some big investors to help o
 So, Be Our Guest On This Journy And Let Us Know If There Is Something you got on your mind. Big Thanks!
 
 HELP US GROW - DONATE BTC AT: 1Fb3knFvbDSuGdypKJBsJEuiHD3MWMYhfY
+
+
 HELP US EVEN MORE - DONATE ETH AT: 0xdefa62c5e1e396a0b83cdfb1a9e2ca45db1dbf23
+
+
 NOW WE ARE TALKING! - DONATE ADA AT: DdzFFzCqrht8FBCDeuaaz5s2dWM5Y2SoC5VXN8d1i1UCoqFE2Yp1CFnEHZigsrXpTjKHfQHn1angth4TujxTsaEcsHN8fRHLPqeEDDy3
